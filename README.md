@@ -1,6 +1,6 @@
 
 
-# ![](https://github.com/BattleForBFDI/luckiestleafy/blob/main/download%20(7).jpeg?raw=true)      
+# temp for graphic
 ###     Melanie  or lucky    
 ( any pronouns pref    she/they )    3teen  basic + 10yo- dni tho  i like to moot elel
  
